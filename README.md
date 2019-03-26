@@ -43,7 +43,7 @@ Resolved, That it is the sense of the Citizens of the United States of America t
 
     4. By Amending Federal discrimination laws to include "Citizens who are legally allowed to carry a firearm" as a protected class of citizen, and prevent discrimination against this protected class by prohibiting businesses and States from denying access based exclusively on the carrying of a firearm.
 
-    5. By denying recognition of suspected, accused, or convicted perpetrators of illegal firearm use, violence, or mass casualty events by shifting the media focus from the suspects who commit these acts to the victims, survivors, and heroes who stop them.1
+    5. By denying recognition of suspected, accused, or convicted perpetrators of illegal firearm use, violence, or mass casualty events by shifting the media focus from the suspects who commit these acts to the victims, survivors, and heroes who stop them.
 
     6. By removing unconstitutional laws that restrict firearm ownership on the basis of arbitrary features including but not limited to - 
 
@@ -76,7 +76,4 @@ Resolved, That it is the sense of the Citizens of the United States of America t
         22. Through the creation and funding of a department dedicated to the research and study of illegal firearm use
 
         23. Through the public release of the the methodology and results of research studies conducted
-
-1. Courtesy of [http://www.dontnamethem.org/](http://www.dontnamethem.org/)
-
 
